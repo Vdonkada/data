@@ -1,1 +1,1 @@
-# vamsi is good boy
+# vamsi not in class
